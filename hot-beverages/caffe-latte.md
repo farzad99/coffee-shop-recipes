@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 1 oz espresso roast
+- 1 oz Cuban espresso roast
 - 1 cup almond milk
 - Milk frother
 - Optional sweetener
